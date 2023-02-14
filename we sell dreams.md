@@ -12,6 +12,4 @@ now, slap the merchandise on the subject, boom.  profit.
 
 and to clarify, this is not an attack on streetwear, Supreme or Strobeck.  i'm actually a huge fan and think that the creative playground that is *identity* is lovely.  all is of love.  and it always has been, especially while we all contribute to this fascinating culture that we've been building.
 
-however, it seems that this cultural project is of no interest to you.  so, perhaps you'd be more interested in the amazon sales pictures: the merchandise, minus the identity.
-
 streetwear isn't a game of *material* — it's a game of *ideal*.
